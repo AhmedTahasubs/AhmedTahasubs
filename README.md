@@ -79,7 +79,7 @@
 
 📧 Email: **[ahmedtahaamuhammed@gmail.com](mailto:ahmedtahaamuhammed@gmail.com)**  
 🌐 Portfolio: **[my-portfolio-lovat-pi-63.vercel.app](https://my-portfolio-lovat-pi-63.vercel.app/)**  
-📄 Resume: [View My CV](https://drive.google.com/file/d/1fvUbVPJvbSnaujhxpePbmY9SvyQf_Vr1/view?usp=sharing)  
+📄 Resume: [View My CV](https://drive.google.com/file/d/1W3sVBpCXmg0cgN9zMvGNvm_TaYEIHBbk/view?usp=sharing)  
 💼 LinkedIn: [Ahmed Taha Muhammed](https://www.linkedin.com/in/ahmedtahamuhammed)
 
 ---
